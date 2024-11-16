@@ -1,0 +1,1 @@
+# Inflation-impact-anlysing-on-the-base-of-exchange-rates-
